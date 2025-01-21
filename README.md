@@ -8,7 +8,7 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning computer science
 - 📫 How to reach me:  
-      · email: *sacha.trouve0@ŋmail.com*  
+      · email: *sacha.trouve0@gmail.com*  
       · discord: *enceladus_t*  
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: Did you know the american flag planted on the Moon's ground is now entirely white because of cosmic radtiations washing it away...
